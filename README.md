@@ -1,1 +1,1 @@
-# egor-alexandrovich.github.io/proba
+# egor-alexandrovich.github.io/proba/cv
